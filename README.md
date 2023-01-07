@@ -1,1 +1,1 @@
-# Waks-tv
+# Waks.tv
